@@ -1,1 +1,1 @@
-# Trolololololo
+# SUBSCRITE TO HIGH LEARNING RATE NOW :)
